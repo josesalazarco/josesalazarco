@@ -39,7 +39,7 @@ AI marketing systems that drive real results.
 
 📍 Colombia &nbsp;|&nbsp; 🌎 Open to remote opportunities worldwide
 
-🔗 Portfolio — coming soon
+🔗 Portfolio — (https://daisy-system-8d7.notion.site/AI-Marketing-Portfolio-Jose-Salazar-326903f6f81d800da35ad9ef4752c592?source=copy_link)
 🎨 [Behance - Retail Design Portfolio](https://www.behance.net/josmasalazar2)
-🔗 [LinkedIn]( https://www.linkedin.com/in/josé-manuel-salazar-ospina-920615329)
+🔗 [LinkedIn](https://www.linkedin.com/in/jos%C3%A9-manuel-salazar-ospina-92b615329) )
 
